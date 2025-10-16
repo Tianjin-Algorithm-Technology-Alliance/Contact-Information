@@ -4,9 +4,6 @@
 
 全网联系方法，失效及时联系，及时更新。
 
-![8106a1d3e1c67c3b4a8b41e5a0360ca5](https://github.com/user-attachments/assets/b18c03ba-c629-4b4c-a362-fb675ec25a5e)
-
-
 - **小红书**：268956049
 
 ## 社区介绍
